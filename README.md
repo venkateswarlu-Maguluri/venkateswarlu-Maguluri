@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @venkateswarlu-Maguluri
 - 👀 I’m from kolagutla, near Macherla
-- 🌱 I’m currently pursuing BTech 3rd year in chalapathi institute of technology, mothadaka, Guntur
+- 🌱 Completed BTech 3rd year in chalapathi institute of technology, mothadaka, Guntur
       In the stream of computer science and engineering.
 - 📫 How to reach me  by using venkateshmaguluri60@gmail.com
 
